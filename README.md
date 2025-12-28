@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 I make mod videogames, and have passion for game dev<br>🌱 I’m currently studying BS CS From FAST University  
+💻 I mod videogames, and have passion for game dev<br>🌱 I’m currently studying BS CS From FAST University  
 
 
 ## 🌐 Socials:
